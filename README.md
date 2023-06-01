@@ -1,1 +1,1 @@
-I'm losing my mind now for real.
+I'm losing my mind now for real
